@@ -6,4 +6,4 @@
 ![image](https://user-images.githubusercontent.com/62654187/84111555-29060a00-aa62-11ea-8159-f8332322a457.png)   
 ![image](https://user-images.githubusercontent.com/62654187/84111629-52bf3100-aa62-11ea-85ec-36d9c2a00ac7.png)   
 ![image](https://user-images.githubusercontent.com/62654187/84111646-5c489900-aa62-11ea-9f31-13d2dcd97dfe.png)       
-PDF문서 https://drive.google.com/file/d/136lt4Hx_ilVMsdTTjCmREFMX41wZ7NKC/view?usp=sharing
+PDF문서 https://drive.google.com/file/d/1WZVNxV18t7LpWayCTekwP2BtANE66vYW/view?usp=sharing
